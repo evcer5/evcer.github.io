@@ -10,4 +10,4 @@ title: Background
 
 ## References
 
-![image](https://github.com/user-attachments/assets/d9080c6d-b34c-4d90-9f8f-c42bb454dd53)
+![image](https://github.com/user-attachments/assets/44880270-ded1-4389-a288-a0e91488347b)
